@@ -8,5 +8,11 @@
 
                                              Referans aldığım 3 saytı sizə təqdim edirəm.
 
+        trendyol.com
+        Trendyol Headerdirini elave edecem
+
 ![image](https://github.com/Israfil666/ProjectManagement/assets/113192535/4910087f-7617-4af8-8a70-f4477206ee6e)
 
+
+
+![Web capture_13-1-2024_91729_lassa az](https://github.com/Israfil666/ProjectManagement/assets/113192535/9f8df24a-7144-45b7-90bf-37933141a744)
