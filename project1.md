@@ -8,4 +8,5 @@
 
                                              Referans aldığım 3 saytı sizə təqdim edirəm.
 
-                                             https://www.youtube.com/watch?v=qIaWozjDyPk&ab_channel=coderawesome
+![image](https://github.com/Israfil666/ProjectManagement/assets/113192535/4910087f-7617-4af8-8a70-f4477206ee6e)
+
