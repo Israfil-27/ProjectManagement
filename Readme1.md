@@ -22,3 +22,9 @@
 
 
 
+     facebook.com dan 
+
+     
+Mesajlaşma və Mediya Paylaşımı: İstifadəçilər, metin mesajları, şəkillər, video və səslərlə bir-birilə mesaj göndərə bilərlər.
+
+Qrup Sohbetləri: Birdən çox şəxs ilə qrup sohbetləri yaratmaq mümkündür. Qrup sohbetlərində müxtəlif mediya faylları paylaşmaq da mümkündür.
