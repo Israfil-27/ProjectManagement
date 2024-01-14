@@ -15,7 +15,10 @@
 
 
 
-    lassa.az  - dan cardlari burdaki cardlar sade ve goz yormurlar
+    lassa.az sizin rahatlığınız üçün sadə və gözə uyğun kartları təqdim edir
 
 
 ![Web capture_13-1-2024_91729_lassa az](https://github.com/Israfil666/ProjectManagement/assets/113192535/9f8df24a-7144-45b7-90bf-37933141a744)
+
+
+
