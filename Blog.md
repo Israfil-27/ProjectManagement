@@ -7,6 +7,7 @@
 1) Gözəl və minimalist dizayn.
 2)İstifadəçilər arasında interaktivlik və rəy bildirimi.
 
+![Web capture_15-1-2024_32212_medium com](https://github.com/Israfil666/ProjectManagement/assets/113192535/18267ea8-5fd1-4ecd-8c18-057923d723b5)
 
 
 
