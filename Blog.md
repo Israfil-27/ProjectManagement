@@ -27,6 +27,7 @@ The Verge - Verge Network                           (https://www.theverge.com/):
 Smashing Magazine                                   (https://www.smashingmagazine.com/):
 
 
+![Web capture_15-1-2024_3246_www smashingmagazine com](https://github.com/Israfil666/ProjectManagement/assets/113192535/95e32de0-1919-4f16-ad73-fdbe7afc814a)
 
 Əlaqəli Xüsusiyyətlər: 
 1)İstifadəçilər üçün təcrübə və məsləhətlər.
