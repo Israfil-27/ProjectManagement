@@ -10,12 +10,14 @@
 
 
 
+
 The Verge - Verge Network                           (https://www.theverge.com/):
 
 
 
 Əlaqəli Xüsusiyyətlər: 
 1)İnteraktiv elementlər və video materiallar.\
+![Web capture_15-1-2024_3167_www theverge com](https://github.com/Israfil666/ProjectManagement/assets/113192535/c77bf449-daf9-4f10-9002-7ecad6c710f3)
 
 
 
